@@ -11,7 +11,7 @@ Vamos ajudar os animais 🐾 e a natureza 🌳 com os recursos financeiros 💲 
 Primeiramente, muito obrigado por estar lendo até aqui🤗. Se você chegou aqui então significa que se identifica com a nossa causa✊. Em segundo lugar, antes de tudo, entre em contato conosco pra gente poder se conversar. Temos dois canais de comunicação o servidor no Discord e o grupo no Telegram, onde você pode entrar clicando nos icones abaixo 👇
 
 [![](https://dcbadge.limes.pink/api/server/https://discord.gg/4JHcgbesE7?compact=true)](https://discord.gg/4JHcgbesE7)
-[![](https://img.shields.io/badge/Telegram-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white)](https://t.me/grupo_med)
+[![](https://img.shields.io/badge/Telegram-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white)](https://t.me/MedVeTech)
 
 Tenho certeza que você leu até aqui você pode colaborar com o projeto, nem que seja com ideias. Então não esite e fale conosco, nos ajude a melhorar o mundo. ❤️
 
@@ -32,6 +32,6 @@ Let's help animals 🐾 and nature 🌳 with the financial resources 💲 genera
 Firstly, thank you very much for reading this far🤗. If you got here then it means you identify with our cause✊. Secondly, first of all, get in touch with us so we can talk. We have two communication channels, the Discord server and the Telegram group, which you can enter by clicking on the icons below 👇
 
 [![](https://dcbadge.limes.pink/api/server/https://discord.gg/4JHcgbesE7?compact=true)](https://discord.gg/4JHcgbesE7)
-[![](https://img.shields.io/badge/Telegram-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white)](https://t.me/grupo_med)
+[![](https://img.shields.io/badge/Telegram-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white)](https://t.me/MedVeTech)
 
 I'm sure if you've read this far you can contribute to the project, even if it's just with ideas. So don't hesitate and talk to us, help us improve the world. ❤️
